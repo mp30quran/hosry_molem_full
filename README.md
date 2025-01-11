@@ -57,11 +57,3 @@
 
 ###  تكرار الآيات والتلاوة
 ![ممارسة الكتابة](https://github.com/user-attachments/assets/3dec47b1-743f-4a15-b744-370e860ac83a)
-![image](https://github.com/user-attachments/assets/c47ebdb3-7e74-4463-8654-a8880b1701c4)
-
-![Screenshot_1735547646](https://github.com/user-attachments/assets/6eb84f7c-01d8-4804-b43e-bc86b211d65a)
-
-![Screenshot_1735547658](https://github.com/user-attachments/assets/0d5c85b2-47c9-4caa-a7d1-eff0188a3ae2)
-
-![Screenshot_1735547640](https://github.com/user-attachments/assets/67360c4d-52dd-4c87-bbd4-0b4608a1fe06)
-
